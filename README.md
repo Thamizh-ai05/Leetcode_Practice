@@ -19,3 +19,6 @@
 #### Completed Day 15(30-7-2025)
 #### Completed Day 16(31-7-2025)
 #### Completed Day 17(31-7-2025)
+#### Completed Day 18(04-8-2025)
+#### Completed Day 19(04-8-2025)
+#### Completed Day 20(04-8-2025)
